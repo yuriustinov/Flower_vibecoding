@@ -25,7 +25,7 @@
 https://codepen.io/mdusmanansari/pen/bGYrmjY
 
 Автор воркшопа:
-https://tg.me/lilipilia
+https://t.me/lilipilia
 
 
 
